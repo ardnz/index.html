@@ -1,1 +1,1 @@
-..
+Memuat akhlaq..
